@@ -1,5 +1,10 @@
 
-<h3 align="center">she | herㅤㅤㅤartist ⊹ ࣪ ˖</h3>
+<h3 align="center">she | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h3>
+
+
+<h3 align="center"> .ᐟ michael afton yumeshipper ♡⸝⸝ </h3>
+
+
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=Profile%20views&color=0e75b6&style=flat" alt="ssscxngel" /> </p>
 
