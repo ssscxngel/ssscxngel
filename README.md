@@ -13,3 +13,4 @@
 - My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
 
 
+![hippo]([https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif](https://tenor.com/ru/view/jumpscare-white-man-meme-gif-5872066164255426879))
