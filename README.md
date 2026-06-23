@@ -12,5 +12,5 @@
 
 - My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
 
-<h1> <img src="https://ru.pinterest.com/pin/42150946508886531/" width="30px"/>
+<h1> <img src="https://ru.pinterest.com/pin/42150946508886531/"/>
 </h1>
