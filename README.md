@@ -1,4 +1,4 @@
- <marquee> <direction=left> <behavior=scroll> <loop> <center><h2> I'm the fear addicted, the danger illustrated...! </marquee>
+I'm the fear addicted, the danger illustrated...!
 
 <h3 align="center">ㅤshe | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h3>
 
