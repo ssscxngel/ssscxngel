@@ -1,5 +1,8 @@
 ── I'm the fear addicted, the danger illustrated...!
 
+<h1 align="center"> <img src="https://i.pinimg.com/736x/0f/09/87/0f0987671cf50be5af8aadf8a87a2c7c.jpg" width="90px"/>
+</h1>
+
 <h3 align="center">ㅤshe | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h3>
 
 
@@ -11,6 +14,3 @@
 - My Tumblr: [https://ssscxngel.tumblr.com/](https://ssscxngel.tumblr.com/)
 
 - My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
-
-<h1 align="center"> <img src="https://i.pinimg.com/736x/0f/09/87/0f0987671cf50be5af8aadf8a87a2c7c.jpg" width="50px"/>
-</h1>
