@@ -1,10 +1,10 @@
 <h3 align="center"> <img src="https://i.pinimg.com/736x/5b/34/a1/5b34a129b3a57e3e85a1672be1315c87.jpg" width="350px"/>
 </h3>
 
-<h4 align="center">ㅤshe | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h4>
+<h3 align="center">ㅤshe | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h3>
 
 
-<h3 align="center">.ᐟ michael afton yumeshipper ♡⸝⸝ </h3>
+<h4 align="center">.ᐟ michael afton yumeshipper ♡⸝⸝ </h4>
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=%20views&color=000000&style=flat" alt="ssscxngel" /> </p>
