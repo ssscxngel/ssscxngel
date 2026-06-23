@@ -1,6 +1,6 @@
 ── I'm the fear addicted, the danger illustrated...!
 
-<h3 align="center"> <img src="https://i.pinimg.com/736x/0f/09/87/0f0987671cf50be5af8aadf8a87a2c7c.jpg" width="200px"/>
+<h3 align="center"> <img src="https://i.pinimg.com/736x/0f/09/87/0f0987671cf50be5af8aadf8a87a2c7c.jpg" width="300px"/>
 </h3>
 
 <h3 align="center">ㅤshe | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h3>
