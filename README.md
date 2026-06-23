@@ -1,5 +1,3 @@
-── I'm the fear addicted, the danger illustrated...!
-
 <h3 align="center"> <img src="https://i.pinimg.com/736x/62/86/8e/62868e801867c064e04031e6d5750172.jpg" width="300px"/>
 </h3>
 
