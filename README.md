@@ -13,3 +13,4 @@
 - My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
 
 
+<p align="left"> <img src="[https://komarev.com/ghpvc/?username=your-github-username&style=flat-square&color=blue](https://tenor.com/ru/view/jumpscare-white-man-meme-gif-5872066164255426879)" alt=""/> </p>
