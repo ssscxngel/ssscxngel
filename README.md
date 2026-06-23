@@ -12,6 +12,7 @@
 
 - My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
 
-<div align="center">
+[<div align="center">
   <img src=" (https://i.pinimg.com/736x/ce/b4/5d/ceb45d67b60b27d6273909f47d7e2865.jpg)"
 </div>
+](https://i.pinimg.com/736x/0f/09/87/0f0987671cf50be5af8aadf8a87a2c7c.jpg)
