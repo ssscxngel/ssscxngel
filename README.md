@@ -1,4 +1,4 @@
-<h3 align="center"> <img src="https://i.pinimg.com/736x/62/86/8e/62868e801867c064e04031e6d5750172.jpg" width="300px"/>
+<h3 align="center"> <img src="[https://i.pinimg.com/736x/62/86/8e/62868e801867c064e04031e6d5750172.jpg](https://i.pinimg.com/736x/5b/34/a1/5b34a129b3a57e3e85a1672be1315c87.jpg)" width="300px"/>
 </h3>
 
 <h3 align="center">ㅤshe | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h3>
