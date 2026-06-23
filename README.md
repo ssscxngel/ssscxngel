@@ -11,3 +11,7 @@
 - My Tumblr: [https://ssscxngel.tumblr.com/](https://ssscxngel.tumblr.com/)
 
 - My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
+
+<div align="center">
+  <img src="(https://media.tenor.com/UX3FEJoJCT8AAAAd/jumpscare-white-man.gif)" width="600" height="300"/>
+</div>
