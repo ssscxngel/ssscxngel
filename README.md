@@ -2,7 +2,7 @@
 <h3 align="center">she | herㅤㅤenfp-tㅤㅤartist ⊹ ࣪ ˖</h3>
 
 
-<h3 align="center"> .ᐟ michael afton yumeshipper ♡⸝⸝ </h3>
+<h3 align="center">.ᐟ michael afton yumeshipper ♡⸝⸝ </h3>
 
 
 
