@@ -5,7 +5,7 @@
 
 - My Tumblr: [https://ssscxngel.tumblr.com/](https://ssscxngel.tumblr.com/)
 
-- My side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
+- My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
 
 <h3 align="left"> !! :</h3>
 <p align="left">
