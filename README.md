@@ -4,8 +4,7 @@
 <h3 align="center">she | her. ㅤㅤenfp-t. ㅤㅤartist.</h3>
 
 
-<h4 align="center">michael afton yumeshipper.</h4>
-<h5 align="center">non-sharing.</h5>
+
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=%20views&color=000000&style=flat" alt="ssscxngel" /> </p>
