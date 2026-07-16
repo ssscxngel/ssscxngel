@@ -9,8 +9,5 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=%20views&color=000000&style=flat" alt="ssscxngel" /> </p>
 
-- My Tumblr: [https://ssscxngel.tumblr.com/](https://ssscxngel.tumblr.com/)
-
-- My Tumblr side blog: [https://shorishachan.tumblr.com/](https://shorishachan.tumblr.com/)
 
 - My StrawPage: https://ssscxngel.straw.page
