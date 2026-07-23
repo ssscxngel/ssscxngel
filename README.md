@@ -9,7 +9,7 @@
 
 <h5> Now Playing... </h5>
 <h3> Machine Girl ── Mechanical Halo (Green's Theme) </h3> 
-↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇
+<h3> ↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇ </h3>
 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=%20views&color=000000&style=flat" alt="ssscxngel" /> </p>
