@@ -1,10 +1,12 @@
-<h3 align="center"> <img src="https://github.com/user-attachments/assets/2bbd4cb7-183f-4ee1-ae72-eba0c9bf3ee9" width="600"> </h3>
+<h3 align="center">  <img height="500 alt="tumblr_4526d7e44596573bf4eaafead24ad4ba_fe82a19f_640" src="https://github.com/user-attachments/assets/0b350298-8ea6-4c79-9520-fee00bab5f95" /> </h3>
 
 
 
-<h3 align="center"> <img width="100" src="https://github.com/user-attachments/assets/75f670e3-4bba-4f0b-88b8-770ea8cff7e4" /> </h3>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [straw](https://ssscxngel.straw.page)</sup>
+<h3 align="center"> <img height="100" alt="Achievement_Clockwork" src="https://github.com/user-attachments/assets/5c384597-d6e5-41ec-8d06-ca2bdb52f6dc" /> </h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=%20views&color=000000&style=flat" alt="ssscxngel" /> </p>
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [straw](https://ssscxngel.straw.page)</sup>
+
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=%20views&color=000000&style=flat" alt="ssscxngel" /> </p>
 
