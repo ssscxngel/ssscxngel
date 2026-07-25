@@ -5,7 +5,7 @@
 
 
 
-<h3 align="center"> <img height="50" alt="Achievement_Clockwork" src="https://static.wikia.nocookie.net/neonwhite/images/7/78/Achievement_Violet%27s_Heaven_Rush_Complete.jpg/revision/latest?cb=20220708083958c" /> </h3>
+<h3 align="center"> <img height="70" alt="Achievement_Clockwork" src="https://static.wikia.nocookie.net/neonwhite/images/7/78/Achievement_Violet%27s_Heaven_Rush_Complete.jpg/revision/latest?cb=20220708083958c" /> </h3>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [straw](https://ssscxngel.straw.page)</sup>
 
