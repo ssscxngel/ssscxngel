@@ -10,7 +10,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [straw](https://ssscxngel.straw.page)</sup>
 
 <h5> Now Playing... </h5>
-<h3> Machine Girl ── Mechanical Halo (Green's Theme) </h3> 
+<h3> Machine Girl ── Bloody Sneakers (Violet's Theme) </h3> 
 <h3> ↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇ </h3>
 
 
