@@ -1,6 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ❗ like my new [artwork](https://www.tumblr.com/ssscxngel/823154759010861056?source=share) PLEASE ❗
-
-
 <h3 align="center">  <img height="500" src="https://github.com/user-attachments/assets/5657c9f6-1603-4209-8a12-9acbcf68ad0a" /> </h3>
 
 
