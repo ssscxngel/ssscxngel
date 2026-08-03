@@ -3,12 +3,7 @@
 <h3 align="center"> <img height="400" alt="IMG_3845 (2)" src="https://github.com/user-attachments/assets/08579649-46d5-4030-8199-fa29067e9db4" />
 
 
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [ata](https://ssscxngel.atabook.org/)</sup>
+<sup> [ata](https://ssscxngel.atabook.org/)</sup>
 
 
 
