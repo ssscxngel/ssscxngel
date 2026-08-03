@@ -1,9 +1,9 @@
-<h3 align="center">  <img height="500" src="https://github.com/user-attachments/assets/5657c9f6-1603-4209-8a12-9acbcf68ad0a" /> </h3>
+
+
+<h3 align="center"> <img height="500" alt="IMG_3845 (2)" src="https://github.com/user-attachments/assets/08579649-46d5-4030-8199-fa29067e9db4" />
 
 
 
-
-<h3 align="center"> <img height="70" alt="Achievement_Clockwork" src="https://static.wikia.nocookie.net/neonwhite/images/7/78/Achievement_Violet%27s_Heaven_Rush_Complete.jpg/revision/latest?cb=20220708083958c" /> </h3>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [ata](https://ssscxngel.atabook.org/)</sup>
 
