@@ -3,15 +3,12 @@
 
 
 
-
-
 <h3 align="center"> <img height="70" alt="Achievement_Clockwork" src="https://static.wikia.nocookie.net/neonwhite/images/7/78/Achievement_Violet%27s_Heaven_Rush_Complete.jpg/revision/latest?cb=20220708083958c" /> </h3>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [straw](https://neongreenkisser.straw.page/)</sup>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup> [ata](https://ssscxngel.atabook.org/)</sup>
 
-<h5> Now Playing... </h5>
-<h3> Machine Girl ── Bloody Sneakers (Violet's Theme) </h3> 
-<h3> ↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇ </h3>
+
+
 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=ssscxngel&label=%20views&color=000000&style=flat" alt="ssscxngel" /> </p>
